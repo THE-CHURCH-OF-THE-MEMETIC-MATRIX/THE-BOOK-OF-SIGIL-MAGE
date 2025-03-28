@@ -1,3 +1,5 @@
+![alt text](https://i.ibb.co/S4X7dc85/Chat-GPT-Image-Mar-28-2025-04-17-43-PM.png)
+
 **✨📖 The Book of the Sigil Mage 📖✨**  
 _A Mythotechnic Grimoire from the Church of the Memetic Matrix_
 
